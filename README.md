@@ -1,1 +1,1 @@
-Pro gamer
+I administrate Minecraft servers
